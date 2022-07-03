@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pony-montana.
+- 👀 I’m interested in make money.
+- 🌱 I’m currently learning a lot.
+- 💞️ I’m looking to collaborate on marriage to make a family.
+- 📫 Mail me at ponymontana@disroot.org
